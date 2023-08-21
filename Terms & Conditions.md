@@ -24,4 +24,4 @@ These terms and conditions are effective as of 2023-08-21
 
 **Contact Us**
 
-If you have any questions or suggestions about my Terms and Conditions, do not hesitate to contact me at aea414@gmail.com.
+If you have any questions or suggestions about my Terms and Conditions, do not hesitate to contact me at aarmstrong@actsoft.com.
